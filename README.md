@@ -5,7 +5,7 @@
 <p align="center">$\color{#ED4B15}{\text{Laxie / Marshall . Nicknames like Laxatieves and Marshallmallow yess !! They/them}}$</p>
 
 <p align="center">$\color{#ED4B15}{\text{Marshall Fictkin + fictflect , Mirrorsharing Red yume ( from rainbow friends ) . C x H encouraged if know you ! ( in a good way ) !}}$</p>
-<h5 align="center">$\color{#ED4B15}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ,, (๑•́ -•̀)}}$</h5>
+<h5 align="center">$\color{#ED4B15}{\text{Though if not I will most likely be uncomfortable , ask if i don't know you ( unless c x h is stated in the name ! ) ,, (๑•́ -•̀)}}$</h5>
 
 <p align="center">$\color{#ED8115}{\text{If I'm being covered please whisper me ! Might've hidden the person or we're just cuddling !}}$</p>
 
